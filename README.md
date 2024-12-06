@@ -1,8 +1,3 @@
-## Basketball Stars Unblocked Games | Games Play Free Online
-
-02 Second Basketball Stars Unblocked Games is a popular website that offers a wide variety of games that can be played in environments where access to gaming sites is typically restricted,
-
-
 ## 👉🔴 [Click to PLAY >> PLAY](http://news.freeplayer.one?title=Basketball_Stars_Unblocked_Games&ref=P)
 
 ## 👉🔴 [Click to PLAY >> PLAY](http://news.freeplayer.one?title=Basketball_Stars_Unblocked_Games&ref=P)
